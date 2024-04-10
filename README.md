@@ -7,4 +7,4 @@
 ✨ Let's connect and collaborate on some amazing projects!
 ✨ Until then, <a href="https://harrypotter.fandom.com/wiki/Killing_Curse" target="_blank">AvAaDA KEdaVRA! </a>
 <br>
-<br>Contact me:<br>Email: <i><strong> >tejuk.1508@gmail.com <br>Discord: xipher._</strong></i>
+<br>Contact me:<br>Discord: xipher._
